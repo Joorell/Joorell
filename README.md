@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on projects  ...
 - 📫 como entrar em contato comigo?...
 -  R: e-mail--> jhonstsjhon10@gmail.com
--  LINKEDIN   ::  Jorel do Santos. programador
+-  LINKEDIN   ::  [Jorel do Santos. programador](https://www.linkedin.com/in/jorel-dos-santos-87258330a/)
 
 <!---
 Joorell/Joorell is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
