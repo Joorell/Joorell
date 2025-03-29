@@ -3,6 +3,7 @@
 - 🌱 Estou cursando engenharia da programação, estou no terceiro periodo.
 - 💞️ I’m looking to collaborate on projects  ...
 - 📫 como entrar em contato comigo?...
+- TEL: 41991759424
 -  R: e-mail--> jhonstsjhon10@gmail.com
 -  LINKEDIN   ::  [Jorel do Santos. programador](https://www.linkedin.com/in/jorel-dos-santos-87258330a/)
 
