@@ -1,5 +1,5 @@
 - 👋 olá meu nome é Jorel
-- 👀 Eu etou enteresado em uma carreira e História em Programação
+- 👀 Eu estou enteresado em uma carreira e História em Programação
 - 🌱 Estou cursando engenharia da programação, estou no terceiro periodo.
 - 💞️ I’m looking to collaborate on projects  ...
 - 📫 como entrar em contato comigo?...
